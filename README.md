@@ -1,2 +1,2 @@
-20223075 목진협
+20223075 Mok Jinhyup
 Kookmin Univ. SW
